@@ -1,0 +1,1 @@
+# 201812_edinet_auto
